@@ -1,2 +1,2 @@
-# invie-github
-Tus mejores guitarras invi-sibles by @lalo
+# invie
+Las guitarras más locas
